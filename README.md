@@ -1,1 +1,2 @@
-# examen_2
+Juan José Duque Arango.
+Janier Steeven Cortez Salazar.
